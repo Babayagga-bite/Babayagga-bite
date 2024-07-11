@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Babayagga-bite (Alex)
-- 👀 I’m interested in hacker toys (You know dude)
 
 - 📫 How to reach me: DM and if you where lucky try to find me
 
